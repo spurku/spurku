@@ -1,0 +1,2 @@
+- 👋 Hi. I'm a 3rd year ICT student and a hobbyist.
+- 
