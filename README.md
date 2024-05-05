@@ -1,2 +1,3 @@
-- 👋 Hi. I'm a 3rd year ICT student and a hobbyist.
+- 👋 Hi. I'm a ICT worker and a hobbyist.
 - How to reach me: Discord: spurku#2431
+- https://www.linkedin.com/in/janne-lankinen/ 
